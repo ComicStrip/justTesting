@@ -4,15 +4,15 @@ In Genesis 28:10-19 Jacob, alone in the desert and running from trouble, falls a
 
 ⸻
 
-2 · Core symbols and what they say about limits
+## 2 · Core symbols and what they say about limits
 
-Element in the dream	Read as a limit-breaking principle
-A ladder, not a catapult	Growth is incremental; every rung is a small, doable action that raises the ceiling a little higher.
-Feet on earth, top in heaven	Keep your present reality in view while holding a motivating vision that transcends it.
-Angels going both directions	Progress isn’t linear; feedback loops (descending angels) bring insight, rest, or course-correction.
-Jacob is asleep	Insight often comes during pause, reflection, or vulnerability—not just during hard driving effort.
-Divine promise	A sense of meaning or purpose bigger than the task fuels perseverance when limits hit.
-
+| Element in the dream                  | Read as a limit-breaking principle                                                                                                   |
+| ------------------------------------- | ------------------------------------------------------------------------------------------------------------------------------------- |
+| **A ladder, not a catapult**          | Growth is **incremental**—every rung is a small, doable action that raises the ceiling a little higher.                               |
+| **Feet on earth, top in heaven**      | Keep your present reality in view while holding a motivating vision that transcends it.                                               |
+| **Angels going *both* directions**    | Progress isn’t linear; feedback loops (descending angels) bring insight, rest, or course-correction.                                 |
+| **Jacob is asleep**                   | Insight often comes during pause, reflection, or vulnerability—not just during hard-driving effort.                                   |
+| **Divine promise**                    | A sense of meaning or purpose bigger than the task fuels perseverance when limits hit.                                                |
 
 
 ⸻
